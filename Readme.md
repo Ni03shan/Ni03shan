@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm a undergraduate student and learning web development and looking for a Job <br>Love to work with working proffesional 
+I'm a undergraduate student and learning web development and looking for a Job <br>Love to contribute with my skills and develop next level inovation 
 
 
 ## 🌐 Socials:
